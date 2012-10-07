@@ -2,6 +2,8 @@
 
 Jobs that you should avoid - Job Descriptions used by [human traffickers](http://en.wikipedia.org/wiki/Human_trafficking) to entice people into slavery
 
+[Slideshow introduction](https://docs.google.com/presentation/pub?id=1skpUiZ5vfjGucCAEOIzR-rnJoYLFqfYgylifIfGxts0&start=false&loop=false&delayms=5000)
+
 Jobs to Avoid is a list of "anti-jobs", typical opportunities that are currently being pitched by human traffickers to lure poor people to the hope of a brighter future in the developed world but which are more likely to result in slavery.
 With 15 million children plus 15 million adults in illegal forced labor all over the world this is information that should be accessible to **everyone** in every society where people are at risk of falling for human traffickers' lies.
 
