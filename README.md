@@ -1,3 +1,11 @@
+UPDATE: 
+     
+Modern slavery in the UK: March 2020
+
+The hidden nature of modern slavery makes producing an accurate prevalence measure difficult. This article explores the issue and brings together data sources linked to modern slavery from a range of organisations.
+
+https://www.ons.gov.uk/peoplepopulationandcommunity/crimeandjustice/articles/modernslaveryintheuk/march2020
+
 # jobstoavoid
 
 Jobs that you should avoid - Job Descriptions used by [human traffickers](http://en.wikipedia.org/wiki/Human_trafficking) to entice people into slavery
