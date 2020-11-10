@@ -1,4 +1,6 @@
 UPDATE: 
+We have been invited to work with with Kenneth Kaunda Centre of Human Rights and Democracy. Learn more https://kennethkaunda.org
+
      
 Modern slavery in the UK: March 2020
 
